@@ -1,2 +1,2 @@
 # resume_project
-## to be contuned
+## To be contuned...
